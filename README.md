@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @scorpii666
+- 👀 I’m interested in byte your apple 🍎
+- 🌱 I’m currently learning how to eat more apples 🍎🍎
+- 💞️ I’m looking to collaborate on eating apples 🍎🍎 on cloud ☁️
+- 📫 Reach me here ... ✉️ devscorpii666@gmail.com
